@@ -1,1 +1,1 @@
-http://yusufpalaci.com.tr
+https://yusufpalaci.com.tr
